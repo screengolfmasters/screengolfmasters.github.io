@@ -1,1 +1,0 @@
-# screengolfmasters.github.io
